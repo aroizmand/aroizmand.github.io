@@ -1,1 +1,0 @@
-# aroizmand.github.io
